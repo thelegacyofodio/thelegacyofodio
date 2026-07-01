@@ -1,1 +1,1 @@
-#### <p align="center"> ![67](https://wilardo.crd.co/assets/images/gallery13/da22db92.png)wip dont look at this</3
+#### <p align="center"> ![67](https://64.media.tumblr.com/0248f0cc517add0e0b0d5fb1f4cd96af/tumblr_inline_mubwi59Mrv1rcbkeo.gif)
